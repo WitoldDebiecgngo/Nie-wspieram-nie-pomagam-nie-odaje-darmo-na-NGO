@@ -1,0 +1,1 @@
+# Nie-wspieram-nie-pomagam-nie-odaje-darmo-na-NGO
